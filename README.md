@@ -23,6 +23,8 @@
 
 ## 复旦大学
 
+[截止：暂无] [管理学院](https://mp.weixin.qq.com/s/BcQ8gPRFejV7MOMtml_BUQ)
+
 [截止：7.21] [国际金融学院](https://fisf.fudan.edu.cn/page-recruitstudents.html)
 
 ## 香港中文大学（深圳）
