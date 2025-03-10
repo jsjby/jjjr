@@ -25,11 +25,28 @@
 
 [截止：暂无] [管理学院](https://mp.weixin.qq.com/s/BcQ8gPRFejV7MOMtml_BUQ)
 
+[截止：9月] [管理学院-博思营（第三轮）](https://mp.weixin.qq.com/s/cTf-12BMinxj3Utl6ob6SA)
+
 [截止：7.21] [国际金融学院](https://fisf.fudan.edu.cn/page-recruitstudents.html)
+
+[截止：7.5] [管理学院-博思营（第二轮）](https://mp.weixin.qq.com/s/cTf-12BMinxj3Utl6ob6SA)
+
+[截止：4.24] [管理学院-博思营（第一轮）](https://mp.weixin.qq.com/s/cTf-12BMinxj3Utl6ob6SA)
+
+
+## 中国科学院大学
+
+[截止：5.29] [经济与管理学院](https://mp.weixin.qq.com/s/EDpRmYrx7PrZd5p5DM6F8w)
 
 ## 香港中文大学（深圳）
 
+[截止：7.20] [数据科学学院硕士项目](https://sds.cuhk.edu.cn/article/2110)
+
 [截止：4.14] [经管学院-深圳高等金融研究院](https://mp.weixin.qq.com/s/ga46gUxvE5Q4gsUPYH02NA)
+
+[截止：4.14] [经济学硕士项目](https://mp.weixin.qq.com/s/TKmn-oEB3cS6Td_1fGQxXw)
+
+[截止：暂无] [金融学理学硕士项目](https://mp.weixin.qq.com/s/PTUwP9GDGim8VRWO0u5Jpw)
 
 ## 香港大学
 
