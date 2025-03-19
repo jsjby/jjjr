@@ -31,7 +31,15 @@
 
 [截止：7.5] [管理学院-博思营（第二轮）](https://mp.weixin.qq.com/s/cTf-12BMinxj3Utl6ob6SA)
 
+[截止：5.10] [经济学院-直博（第二轮）](https://econ.fudan.edu.cn/info/1307/30147.htm)
+
+[截止：5.10] [经济学院-专硕（第二轮）](https://econ.fudan.edu.cn/info/1519/30167.htm)
+
 [截止：4.24] [管理学院-博思营（第一轮）](https://mp.weixin.qq.com/s/cTf-12BMinxj3Utl6ob6SA)
+
+[截止：4.15] [经济学院-直博（第一轮）](https://econ.fudan.edu.cn/info/1307/30147.htm)
+
+[截止：4.15] [经济学院-专硕（第一轮）](https://econ.fudan.edu.cn/info/1519/30167.htm)
 
 
 ## 中国科学院大学
@@ -50,5 +58,5 @@
 
 ## 香港大学
 
-[截止：2.24] [经管学院](https://mp.weixin.qq.com/s/MYtVPm8noMh0Ku4AGZ5I_w)
+~~[截止：2.24] [经管学院](https://mp.weixin.qq.com/s/MYtVPm8noMh0Ku4AGZ5I_w)~~
 
